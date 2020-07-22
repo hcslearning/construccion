@@ -9,4 +9,7 @@ Enlaces
 Videos
 -------
 
-- https://www.youtube.com/watch?v=vEw_oCZNyBk 
+- Sodimac Hagalo ud. mismo https://www.youtube.com/watch?v=vEw_oCZNyBk 
+- Cambio llave y flexibles | https://www.youtube.com/watch?v=pemscZLouXg
+- Instalación de llave y flexibles | https://www.youtube.com/watch?v=_qV5AqoVCG8 
+
