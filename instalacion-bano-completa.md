@@ -4,6 +4,7 @@ INSTALACIÓN COMPLETA DE UN BAÑO
 Materiales
 -----------
 - Cañerías de cobre o CPVC
+- Tuberías Sanitarias (grises o blancas con diámetro 40, 50, 75, 110mm)
 
 
 
