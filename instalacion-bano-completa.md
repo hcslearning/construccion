@@ -11,4 +11,5 @@ Materiales
 Videos
 -------
 
-- https://www.youtube.com/watch?v=GeFWjIZdaeM&feature=emb_rel_end
+- Sodimac - Hagalo ud. mismo #1 | https://www.youtube.com/watch?v=GeFWjIZdaeM
+- Sodimac - Hagalo ud. mismo #2 | https://www.youtube.com/watch?v=ttkHUWpBrzQ 
